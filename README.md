@@ -1,5 +1,5 @@
 # 💫 About Me:
-A 14 year old male who is interested in programming and tech in general.
+I'm a passionate tech enthusiast and self-taught developer diving deep into the world of coding! 🚀 I love building projects, exploring open-source contributions, and constantly learning new technologies.
 
 
 ## 🌐 Socials:
